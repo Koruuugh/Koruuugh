@@ -11,11 +11,15 @@ if you want to take inspo from my skins you can, we are in a game <3 and I like 
 
 ✶ A quick reminder that the game has accessories, and they're for use. Oh! You bought an exclusive accessory... Can you show me the purchase receipt, honey? Everyone learns by seeing, **live and let live**
 
-✶ Dni: proshippers, people under 16, I am an adult ^^;; https://criteriadni.carrd.co/ *(credits to whom it may concern)*
+✶ Dni: proshippers, pedo, loli/shotacon, incest shippers idk, people under 16, I am an adult ^^;; https://criteriadni.carrd.co/ *(credits to whom it may concern) Just don't be a weirdo...(in the bad way).*
 
 ✶ Don't associate me with the "Ship" or characters I'm sitting with, they're just friends hanging out with me or people close to me
 
-**Thanks for reading all of this. Take care. <3**
+✶ I will respect your tastes in ships regardless of what you like (except for pedophilia or incest) respect my tastes, I will not receive hate speech for my tastes on a server where we are all ADULTS!, thanks <3
+
+✶I freely block or hide whoever bothers me, refrain from using me as your point of hatred, I am not the right person to vent your anger on
+
+**Thanks for reading all of this. Take care birdie <3**
 <!--
 **Koruuugh/Koruuugh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
