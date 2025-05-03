@@ -1,8 +1,7 @@
 ## Hi little bird <3
 
 ![](https://komarev.com/ghpvc/?username=koruuugh&color=d19476)
-![Cookie0506ak01-cookie0506ak01-personal2](https://github.com/user-attachments/assets/29de31db-5e41-4e23-b62f-bb9b1ddcaa73)
-
+![Image](https://github.com/user-attachments/assets/fc15aa21-44fb-4f6d-9665-8c81c3d85f15)
   
 ---
 if you want to take inspo from my skins you can, we are in a game <3 and I like to see people who are inspired by my ideas, let me know if you liked any skin or color <3, the only identical copies of my skin that I receive are from my partner! I would like that to be respected, if you want to talk to me just come up to me and whisper! Sometimes I'm offtab <3 I'm not intimidating at all haha I'm fine with interactions or C+H, I'm usually with my partner, if I want privacy I'll just say goodbye to you, don't take it personally I have my arms open for when you want to sit or talk to me again
