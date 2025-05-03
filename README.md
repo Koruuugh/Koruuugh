@@ -2,7 +2,6 @@
 
 ![](https://komarev.com/ghpvc/?username=koruuugh&color=ac79d6)
 
-
 ---
 if you want to take inspo from my skins you can, we are in a game <3 and I like to see people who are inspired by my ideas, let me know if you liked any skin or color <3, the only identical copies of my skin that I receive are from my partner! I would like that to be respected, if you want to talk to me just come up to me and whisper! Sometimes I'm offtab <3 I'm not intimidating at all haha I'm fine with interactions or C+H, I'm usually with my partner, if I want privacy I'll just say goodbye to you, don't take it personally I have my arms open for when you want to sit or talk to me again
 
@@ -23,3 +22,4 @@ if you want to take inspo from my skins you can, we are in a game <3 and I like 
 ✶I freely block or hide whoever bothers me, refrain from using me as your point of hatred, I am not the right person to vent your anger on
 
 **Thanks for reading all of this. Take care birdie <3**
+![Image](https://github.com/user-attachments/assets/33b14c99-4799-4c91-b950-f13229fa2a77)
